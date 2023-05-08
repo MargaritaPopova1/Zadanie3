@@ -4,4 +4,4 @@
 
 Пока что все получается, но не хвататет котиков и пёсиков для большего успеха
 
-![Котопёс](https://prnt.sc/cl75Zz0ZlziO)
+![image](https://user-images.githubusercontent.com/127550267/236790678-772df800-734b-410b-a029-eea6947d1a7b.png)
